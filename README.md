@@ -1,4 +1,4 @@
-# Home 
+# Home
 Welcome to my homepage!
 
 I am currently NBHM Postdoctoral Fellow at Department of Mathematics, IISER Pune, since 1st July 2021.  My official profile on IISER Pune website is here. 
